@@ -1,6 +1,6 @@
 # Lilcimbol-V2
 a basic Multi tool free code also has alot of stuff
-
+Heres all my links https://guns.lol/lilcimbol
 stuff that dont work but will when v2 comes out ip gen bot spammer and gen dicord tokens
 Make sure to join my discord for updated versions https://discord.gg/yXhVhXdm
 
